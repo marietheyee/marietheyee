@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marietheyee
-- 👀 I’m interested in crafting, traveling, reading, and parenting a teen (eek!)
+- 👀 I’m interested in crafting, traveling, reading.
 - 🌱 I’m currently learning how to do this confusing stuff in my old age
 - 💞️ I’m looking to collaborate on (see previous line)
 - 📫 How to reach me ...pm me here?
